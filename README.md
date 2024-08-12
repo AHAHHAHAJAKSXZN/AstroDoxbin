@@ -1,4 +1,5 @@
-![изображение](https://github.com/user-attachments/assets/2e31d7fd-1877-42ef-9282-67fbb079a2ca)
+![изображение](https://github.com/user-attachments/assets/18063ab2-fbe2-4ff1-883d-39e877472418)
+
 
 РУ
 
